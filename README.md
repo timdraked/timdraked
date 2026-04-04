@@ -1,3 +1,4 @@
+if youre shujidove/puphalos/timjays or pawlickk LEAVE METHE FUCK ALONE OMGGG. i do care for either of you, and you're irrelevant to me. I never talked shit about you either, that was other people who did. genuinely leave me and my friends + my name alone .. hypocritcal & breaking dnis / antiharass stances lol. 
 <p align="center">
   Tyler 𝜗𝜚 8teen
   <br>
