@@ -1,4 +1,4 @@
-if youre shujidove/puphalos/timjays or pawlickk LEAVE METHE FUCK ALONE OMGGG. i do not care for either of you, and you're irrelevant to me. I never talked shit about you either, that was other people who did. genuinely leave me and my friends + my name alone .. hypocritcal & breaking dnis / antiharass stances lol. 
+I will not respond to hatespeech toward me period, especially through anons. if you have an issue to sort out like adults you may contact me on disc which is the same @ as here. If I have hidden you, all I ask is to leave me alone. @pawlickk & puphalos; I do not care to talk trash about you, of which I never did. Please leave me alone, respectfully. thanks. 
 <p align="center">
   Tyler 𝜗𝜚 8teen
   <br>
