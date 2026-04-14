@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=timdraked&style=plastic&label=vigilante&color=81a137)
 
-<img width="2048" height="2048" alt="Untitled1453_20260414171343" src="https://github.com/user-attachments/assets/fa426469-780e-4316-bd96-852e08448e4c" />
+<img width="2048" height="2048" alt="IMG_2951" src="https://github.com/user-attachments/assets/6df263cd-436e-47bb-80e2-7dbbdc75e326" />
 <img width="1280" height="136" alt="IMG_2946" src="https://github.com/user-attachments/assets/e51968d3-f7e5-4122-8520-c87dfacfa1fd" />
 
 [rentry](https://rentry.co/timdrake) 𝄢 ۫ 𓈒⁺ [ata](https://timdrake.atabook.org/)
