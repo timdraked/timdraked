@@ -1,5 +1,4 @@
-![](https://komarev.com/ghpvc/?username=timdraked&style=plastic&label=vigilante&color=81a137)
-
+![](https://komarev.com/ghpvc/?username=timdraked&style=plastic&label=vigilante&color=81a137) tim drake of pt! @title-town @fan-town
 <img width="2048" height="2048" alt="IMG_2951" src="https://github.com/user-attachments/assets/6df263cd-436e-47bb-80e2-7dbbdc75e326" />
 <img width="1280" height="136" alt="IMG_2946" src="https://github.com/user-attachments/assets/e51968d3-f7e5-4122-8520-c87dfacfa1fd" />
 
