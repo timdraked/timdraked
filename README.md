@@ -1,7 +1,9 @@
 <img width="640" height="158" alt="Untitled1652_20260907205601" src="https://github.com/user-attachments/assets/f02d4012-9f8b-4f3f-ad0b-871291c8f8b9" />
 
 ![](https://komarev.com/ghpvc/?username=timdraked&style=plastic&label=vigilante&color=81a137) tim drake of pt! [@title-town](https://github.com/title-town) [@fan-town](https://github.com/fan-town)
-<img width="2048" height="2048" alt="IMG_2951" src="https://github.com/user-attachments/assets/6df263cd-436e-47bb-80e2-7dbbdc75e326" />
+
+<img width="2048" height="2048" alt="Untitled1655_20260907211229" src="https://github.com/user-attachments/assets/531809ef-bb02-4860-b06b-e7a443dcce5e" />
+
 <img width="1280" height="136" alt="IMG_2946" src="https://github.com/user-attachments/assets/e51968d3-f7e5-4122-8520-c87dfacfa1fd" />
 <img width="640" height="158" alt="Untitled1653_20260907210300" src="https://github.com/user-attachments/assets/210d25a3-9dec-4896-985e-8885d35926d6" />
 
