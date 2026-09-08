@@ -7,5 +7,5 @@
 <img width="1280" height="136" alt="IMG_2946" src="https://github.com/user-attachments/assets/e51968d3-f7e5-4122-8520-c87dfacfa1fd" />
 <img width="640" height="158" alt="Untitled1653_20260907210300" src="https://github.com/user-attachments/assets/210d25a3-9dec-4896-985e-8885d35926d6" />
 
-[rentry](https://rentry.co/timdrake) ‎ ‎ 𝄢 ۫ 𓈒⁺‎ ‎  [ata](https://timdrake.atabook.org/) ‎ ‎ 𝄢 ۫ 𓈒⁺‎ ‎  [listo](https://listography.com/timdraked) ‎ ‎ 𝄢 ۫ 𓈒⁺‎ ‎  [revospring](https://revospring.net/@redrobin)
+[rentry](https://rentry.co/timdrake) ‎ ‎ 𝄢 ۫ 𓈒⁺‎ ‎  [ata](https://timdrake.atabook.org/) ‎ ‎ 𝄢 ۫ 𓈒⁺‎ ‎  [listo](https://listography.com/timdraked)
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3167wo3fmhnsfyufyec2n32wqiga&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=d3ff59&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
